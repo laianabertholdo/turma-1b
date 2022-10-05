@@ -1,0 +1,15 @@
+gucci
+Gucci é uma casa de moda de luxo italiana com sede em Florença, Itália. Suas linhas de produtos incluem bolsas, roupas, calçados e acessórios, maquiagem, fragrâncias e decoração de casa. A Gucci foi fundada por Guccio Gucci em 1921.
+Fundador: Guccio Gucci
+Fundação: 1921, Florença, Itália
+CEO: Marco Bizzarri (1 de jan. de 2015–)
+Sede: Florença, Itália
+Organizações matrizes: Kering, Kering Holland NV
+Subsidiárias: Gucci America, Inc., Fabbrica Quadranti S.A.
+Diretor de criação: Alessandro Michele
+De quem é a Gucci atualmente?
+Durante a década de 2010, a marca tornou-se uma marca icônica "geek-chique". Em 2019, a Gucci operou 487 lojas para 17.157 funcionários e gerou €9,628 bilhões em vendas. Marco Bizzarri é o CEO da Gucci desde dezembro de 2014 e Alessandro Michele diretor criativo desde janeiro de 2015.
+Qual é o salário de um vendedor da Gucci?
+A média salarial nacional de Vendedor na empresa Gucci é de R$ 8.712 por mês. O salário mensal de Vendedor na empresa Gucci varia de R$ 2.557 a R$ 15.984
+Como a Gucci ficou famosa?
+Depois de muitos anos se especializando na criação de itens feitos com couro, em 1947, a Gucci mostrava ao mundo outro sucesso: a bolsa Gucci. Feita com alça de bambu, a bolsa se tornou um dos maiores ícones da grife e foi a primeira peça com o famoso logotipo GG entrelaçado.
